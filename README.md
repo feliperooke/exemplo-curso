@@ -1,10 +1,10 @@
-2 xícaras (chá) de açúcar
+3 xícaras (chá) de açúcar
 3 xícaras (chá) de farinha de trigo
-4 colheres (sopa) de margarina
+3 colheres (sopa) de margarina
 3 ovos
-1 e 1/2 xícara (chá) de leite
-1 colher (sopa) bem cheia de fermento em pó
-2 colheres de fubá
+3 e 1/2 xícara (chá) de leite
+3 colher (sopa) bem cheia de fermento em pó
+3 colheres de fubá
 Bata as claras em neve e reserve.
 Misture as gemas, a margarina e o açúcar até obter uma massa homogênea.
 Acrescente o leite e a farinha de trigo aos poucos, sem parar de bater.
